@@ -1,7 +1,11 @@
-## Climate Change Conference at Marquette University
+## The United Nations Climate Change Conference (COP26)
 
-Accompanying Youth to a Hope-filled Future
-Virtual Conference  
-November 15-18, 2021
+COP26 Conference of the Parties 
 
-[Event Site](https://www.luc.edu/sustainability/initiatives/climatechangeconference/)
+Climate Change Convention 
+
+Glasgow, Scotland 
+
+31 October - 12 November, 2021 
+
+[Event Site](https://ukcop26.org/)
